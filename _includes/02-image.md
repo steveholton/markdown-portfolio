@@ -1,1 +1,1 @@
-[image of the San Clemente Pier] (http://globalgirltravels.com/wp-content/uploads/2017/03/San-Clemente-pier-aerial-H.jpg)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
