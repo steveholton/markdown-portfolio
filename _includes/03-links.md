@@ -1,1 +1,1 @@
-[Git Hub] (http://solspot.com/t-street-san-clemente-surf-report/)
+[T-Street Beach CAM](http://solspot.com/t-street-san-clemente-surf-report/)
