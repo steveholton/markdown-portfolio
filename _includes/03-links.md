@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Git Hub] (http://solspot.com/t-street-san-clemente-surf-report/)
